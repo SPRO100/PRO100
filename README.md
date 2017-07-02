@@ -1,2 +1,0 @@
-# PRO100
-PRO100coin
